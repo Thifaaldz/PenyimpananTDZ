@@ -1,0 +1,70 @@
+Lomba Tahfidz
+1) Muhammad Ghaisan Aimmar (089656675668)
+2) Muhammad Malik Kahfi (089656675668)
+3) Arsy Almahira Zainko Pradana (081291277771)
+4) Muhammad Altruis Fadhilah (088210019395)
+5) Ibnu Fadhilah Alhanif (088210019395)
+6) Radhika Akmal Darmawan (085697973697)
+7) Hafshah Azra Syakira (081282468609)
+8) Emelyn (085718643885)
+9) Lathifa (085707669861)
+10) Affan Taufiqurrahman (089514748428)
+11) Hafiz Amrullah (089514748428)
+12) Faiz Affandi Syakir (081374000691)
+13) Alisha Khaira Wilda (089507913607)
+14) Darin (085881207100)
+15) Gema Wahyu Ramadhan (087888793488)
+16) Muhammad Aldiansyah (088973279742)
+17) M. Arkham Athallah (085693127771)
+18) Hisyam Al Azmi (081283409055)
+19) Fauziah Alifah (081283409055)
+20) Reyvan Al-Hazami (085716510196)
+
+Lomba Adzan
+1) Muhammad Ghaisan Aimmar (089656675668)
+2) Muhammad Malik Kahfi (089656675668)
+3) Chairil Azzam Dharmawan (085697973697)
+4) Muhammad Altruis Fadhilah (088210019395)
+5) Affan Taufiqurrahman (089514748428)
+6) Aika Amran Azri (085693263243)
+7) Abdullah Azzam (081283716206)
+8) Ali Firdaus (081283716206)
+9) Ahmad Romadhon (089694460989)
+10) M. Khairul Fahri (0895271387005)
+11) Ezar Noufal Ramadhan (089684474850)
+12) Reyvan Al-Hazami (085716510196)
+13) Khanafi Budi Mulia (0895370276254)
+14) Abiyu Rafif Alhanan (085710012122)
+15) Muhammad Galang Pratama (08999306374)
+16) Fatir Rizqullah Ahmad (081221698207)
+17) Muhammad Fadli (085773201400)
+18) Muhammad Ammar (081294000321)
+
+Lomba Pidato
+1) Ahmad Feryzal ✅
+ (081317758539)
+2) Bunino Hindrawan ✅
+ (082112454786)
+3) Qaireen Jeevika Maulida ✅
+ (085780056512)
+4) Muhammad Fathan Fadilah ✅ 
+(085880478176)
+5) Ahmad Alzam El Hakimi ✅
+ (083895112940)
+6) Ahmad Khaitami (082318277690)
+7) Achmad Rakha Wardhana (081367153023)
+8) Shafa Amirah (088973122169)
+
+Lomba Kaligrafi
+1) Syahira Khairunnisa (08569015197)
+2) Amirah Ghina (081398433143)
+3) Emelyn Elvira rastama (085718643885)
+4) Lathifa (085707669861)
+5) Darin Sidqia (085881207100)
+6) Ayrizq Ashabu Royatussu'ud (082712585304)
+7) Maulana Bilkhaqqi (0895327944226)
+8) Riva Salsa Nabila (085210632764)
+9) Tara Ramadhan Saputra (085771600662)
+10) Nadia Aisyah Putri (0895393072971)
+11) Muhamad Fadlan Gunawan (089638671618)
+
